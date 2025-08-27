@@ -37,8 +37,9 @@
 
   * Bertrum Piedmont
    Bertrum Piedmont é o trabalhador e engenheiro de parques temáticos, como foi responsável pela criação do Bendy Land, a pedido de Joey, e é o primeiro chefe confrontado por Henry no capítulo 4. Nas duas gravações, Bertrum mostrava ser orgulhoso pela suas criações de parques temáticos, e mostrava raiva quando era desvalorizado pelo próprio Joey Drew, por não dá a atenção de seu legado. Bertrum prometeu então mostrar todo o seu potencial para criar algo grande e encantador no Bendy Land, mas desejava que seu nome esteja gravado como criador do parque.Durante a segunda e última gravação, Bertrum mostra todo esse desejo de respeito, valor e conhecimento, e mostra superioridade contra Joey Drew por tratar como um mero funcionário, e enquanto suas vozes são ditas, uma de suas invenções próximo (um tipo de carrossel-polvo) ganha vida, se tornando hostil para Henry, e revelando após o fim da gravação que Bertrum Piedmont se tornou uma das criaturas corrompidas, pois seu rosto grande está presente dentro da atração. Bertrum, sendo o primeiro chefe, ataca Henry com um de seus quatros braços, girando no centro da sala para atropelar com um de seus assentos, e ser atingido duas vezes seguidas resulta na morte. Bertrum inicialmente destrói a mesa onde está o gravador, revelando o machado para Henry, e para que possa derrotar Bertrum com machado.
-   
+
   * Joey Drew
   
   - O começo -
+  
    
