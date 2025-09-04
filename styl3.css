@@ -16,6 +16,7 @@
 
         .fundo.png {
             background-image: fundo.png;
+            position: center;
         }
         h1 {
             color: #f2a900;
